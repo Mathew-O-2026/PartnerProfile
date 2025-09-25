@@ -1,2 +1,2 @@
 # PartnerProfile
-This is a school project for Homework 
+This is a school project for Classwork
