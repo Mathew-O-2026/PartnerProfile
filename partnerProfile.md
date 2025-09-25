@@ -10,7 +10,7 @@ I enjoy spending my free time in a few different ways:
 **Favorite Show:** The Umbrella Academy   
 
 ## Fun Fact  
-There isn’t really anything super fun or surprising about me… but that makes me unique in its own way!  
+There isn’t really anything super fun or surprising about me. 
 
 ---  
 This profile was created by Mathew Osario. 
