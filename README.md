@@ -1,2 +1,2 @@
 # PartnerProfile
-Leo Jimenez
+This is a school project for Homework 
